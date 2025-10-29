@@ -1,3 +1,2 @@
-#Profiie <br>
-【English】 <br>
+#Profiie
 I'm S-Tsu!
